@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Tetris
 - 📫 How to reach me: idk 
 - 😄 Pronouns: up/to/you
-- ⚡ Fun fact: Drinks water
+- ⚡ Fun fact: Drinks water 
 -->
